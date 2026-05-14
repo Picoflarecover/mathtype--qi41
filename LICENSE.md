@@ -1,4 +1,4 @@
-# 
+# Enhance MathType for PC | MathType for Windows with premium MathType for PC | MathType for Windows Integration | 3D-plotting + graph-customization, the #1 integration. Includes
 
 
 
